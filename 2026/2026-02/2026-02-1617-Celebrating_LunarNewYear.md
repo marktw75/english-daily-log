@@ -34,12 +34,31 @@ My high school class is having to 10th reunion this weekend.
 
 mobile
 Many people play mobile games when they are traveling.
+She uses a mobile phone every day to stay in touch with her friends and family, no matter where she is.
+The baby watched the colorful mobile spin slowly above the crib with great interest.
+
+mobilize
+The community quickly mobilized volunteers to help clean up the park after the big storm.
 
 closeness
 The closeness I have with my mother is very special.
+The closeness between the siblings helped them support each other through difficult time.
+
+close
+Living close to the park lets up soak up morning sun and fresh air daily.
+
+close-knit
+They lived in a close-knit neighborhood where everyone supported each other.
 
 merry
 Everyone had a merry time at the reunion dinner.
+Every one felt merry during the holiday party, laughing and singing together.
+
+merrily
+The children sang merrily as they danced around the brightly decorated Christmas tree.
+
+merriment
+The room was filled with loud merriment as everyone enjoyed the graduation celebration together.
 
 meaningful
 Helping others makes my life feel more meaningful.
@@ -82,7 +101,21 @@ a snap
 light up
 ### Deep Dive
 
+technology
+cutting-edge technology
+This phone uses cutting-edge technology to fold in half.
   
+outdated technology
+My grandma still uses a flip phone. It's outdated, but it works.
+
+tech-savvy
+Ask Jamie, She's tech-savvy. She fixed the printer with two buttons and a look.
+
+push the boundaries of technology
+These scientists are pushing the boundaries of technology in medicine.
+
+tech neck
+I've got tech neck from doom-scrolling all day.
 
 ## Usage Tip
 
