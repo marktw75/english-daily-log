@@ -57,6 +57,13 @@ No one could resist pulling out their phones to record his comical dance moves a
 
 district
 It's very expensive to live in the lake district.
+The art district was filled with colorful murals, small cafes and music playing on every corner.
+
+districtwide
+A districtwide reading contest encouraged students from every school to share their favorite books.
+
+sector
+The technology sector has grown quickly in recent years, creating new jobs and changing the way people communicate.
 
 tin
 Put all the tin cans in this box.
