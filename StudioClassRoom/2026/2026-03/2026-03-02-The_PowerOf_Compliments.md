@@ -29,46 +29,46 @@ The things a person has
   Your new shoes are cool.
 
 ## Word Bank
-receiver
+receiver `/rɪˋsivɚ/` 接收者；受話人
 
-compliment
+compliment `/ˋkɑmpləmənt/` 讚美；恭維
 Elaine smiled widely when her teacher gave her a compliment on her presentation.
 The manager complimented the team for finishing the project ahead of schedule.
 
-complimentary
+complimentary `/ˌkɑmpləˋmɛntərɪ/` 讚美的；免費贈送的
 Guests at the hotel receive a complimentary breakfast of toast, eggs and bacon every morning.
 
-neighborhood
+neighborhood `/ˋnebɚˌhʊd/` 鄰里；附近地區
 Our neighborhood has a small playground that comes alive in the late afternoon, when children rush there to play after school.
 
-neighboring
+neighboring `/ˋnebɚɪŋ/` 鄰近的
 During festivals, people from neighboring communities come together in our park to celebrate with music, food, and games.
 
-neighborly
+neighborly `/ˋnebɚlɪ/` 友善的；親切的
 They gave us a neighborly greeting, offering cookies and iced tea when we moved in.
 
-engage
+engage `/ɪnˋɡeʤ/` 參與；從事；吸引
 
-sincere
+sincere `/sɪnˋsɪr/` 真誠的；誠懇的
 
-shallow
+shallow `/ˋʃælo/` 膚淺的；淺薄的
 
-connected
+connected `/kəˋnɛktɪd/` 有關聯的；連接的
 ### Word Bank Boost
-connect
+connect `/kəˋnɛkt/` 連接；聯繫
 The two rooms share a connected balcony, allowing guests to walk between them easily.
 
-connective
+connective `/kəˋnɛktɪv/` 連接的；結締的
 Muscles are attached to bones with connective tissue that helps the body move.
 
-connectivity
+connectivity `/ˌkɑnɛkˋtɪvɪtɪ/` 連接性；連通性
 Good internet connectivity is essential for online classes and remote work.
 
-connection
+connection `/kəˋnɛkʃən/` 連接；關聯；人脈
 
 ### More Information
 
-compliment
+compliment `/ˋkɑmpləmənt/` 讚美；恭維
 ### Focus on Phrases
 
 ### Deep Dive
