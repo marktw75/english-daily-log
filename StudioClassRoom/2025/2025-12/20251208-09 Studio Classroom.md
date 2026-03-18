@@ -1,0 +1,245 @@
+# Don't Slouch
+
+Good posture matters more than you think
+
+  
+
+Standing with confidence
+
+Stand tall with your shoulders back and your legs in a wide V. Bend your arms and put your hands on your hips. Studies show that power poses like this increase feelings of confidence and control. They also cause others to think of you as more powerful and in control.
+
+  
+
+  
+
+Do you spend hours bent over your phone with your shoulders rounded and neck pushed forward? We all do! But the more your ignore your posture, the worse it will get. How you sit or stand can affect not just your back, but your physical and mental health, too!
+
+  
+
+Good posture means retaining the natural curves of your back in your neck, middle back and lower back. Your back should be straight, but not still. Keep your ears, shoulders and hips in a straight line, your weight on both feet and your muscles relaxed.
+
+  
+
+Poor posture when using technology results in "tech-neck". Your head is pushed forward, and a bump developes on your back, causing neck and back pain. Poor posture keeps your body from getting enough oxygen, which tightens your muscles and increases stress. It also puts pressure on your spine, causing headaches and confusing.
+
+  
+
+Proper posture has many benefits. One study showed that people who had good posture were happier, more confident and less fearful than thos who slouched. Another study showed they had better focus when taking a test.
+
+  
+
+  
+
+If you have bad posture, you can improve it without breaking a sweat! An ergonomic chair or pillow can support your spine's natural curve and keep your shoulders back. It's important to wear shoes that fit well and sleep on a firm mattress. Also, do a few daily back exercises and you will stand taller.
+
+  
+
+Try these simple exercises during study or screen breaks.
+
+Shoulder presses: Stand up straight, and press your shoulder blades together. Hold 5 seconds. Repeat 5 times.
+
+Wall angels: Stand with your back against a wall, and raise and bend your arms to 90 degrees. Slowly raise and lower your arms along the wall.
+
+Bridge pose: Lie on your back with your knees bent and feet flat. Lift your hips and hold for a few seconds.
+
+Child's pose: Kneel and push forward, arms stretched out. Rest your head on the floor and relax your muscles.
+
+Superman: Lie on your stomach, arms out. Lift your arms, chest and legs. Hold for a few seconds.
+
+  
+
+Good posture takes practice, but it helps you feel great and stay healthy - now and in the future.
+
+  
+
+## Work Bank
+
+retain /rɪˋten/ 保留；維持
+
+He was able to retain his title as champion for five years.
+
+  
+
+bump /bʌmp/ 隆起；凸塊
+
+The new speed bump on my street has caused drivers to slow down.
+
+Feeling increasingly concerned about the growing bump on his arm, Benjamin booked an appointment with his doctor.
+
+The busy server bumped into a customer and spilled an entire tray of drinks on our table.
+
+  
+
+bumpy
+
+As the vehicle approached the unpaved portion of the road, the safari guide said, "Fasten your seatbelts, everyone, we're in for a bumpy ride!"
+
+  
+
+stiff /stɪf/ 僵硬的；不靈活的
+
+My neck feels stiff after working at the computer all day.
+
+  
+
+confusion /kənˋfjuʒən/ 困惑；混亂
+
+When the fire alarm went off, everyone looked around in confusion.
+
+  
+
+fearful /ˋfɪrfəl/ 害怕的；恐懼的
+
+As a child, I was fearful of unfamiliar places and people.
+
+  
+
+angel /ˋendʒəl/ 天使
+
+The teacher has the class do 25 wall angels every morning.
+
+They told of their brush with death during the car accident, insisting an angel had protected them.
+
+  
+
+angelic
+
+the young soloist sang with a voice so angelic that the audience was moved to tears.
+
+  
+
+kneel /nil/ 下跪；跪著
+
+After her knee injury, Doreen had difficulty kneeling.
+
+  
+
+stomach /ˋstʌmək/ 胃；肚子
+
+Whenever I have an upset stomach, I drink ginger tea.
+
+By the third block, all of the students's stomachs were growling with hunger.
+
+I want to study abroad, but I can't stomach the thought of not seeing my family for an entire year!
+
+  
+
+one's eyes are bigger than one's stomach 心有餘而力不足
+
+My eyes are always bigger than my stomach when I go to a buffet; I always take too much food.
+
+  
+
+chest /tʃɛst/ 胸部
+
+He went to see the doctor about the pain in chest.
+
+  
+
+### Word Bank Boost
+
+confuse /kənˋfjuz/ 使混淆；使困惑
+
+I sometimes confuse their names because they are so similar.
+
+  
+
+confusingly /kənˋfjuzɪŋlɪ/ 令人困惑地
+
+The instructions were written so confusingly that I couldn't understand them.
+
+### More Information
+
+slouch /slaʊtʃ/ 無精打采地坐/站；駝背（動/名詞）
+
+  
+
+posture /ˋpɑstʃɚ/ 姿勢；體態
+
+  
+
+spine /spaɪn/ 脊椎；脊柱
+
+The doctor diagnosed her with scoliosis, and irregular curve in her spine, and recommended a series of back-strengthening and stretching exercises.
+
+The English Literature teacher dreamed of one day seeing her name printed on the spine of a book.
+
+  
+
+spinal
+
+The fluid in the space surrounding our spinal cord and brain serves as a cushion to protect them from harm.
+
+  
+
+ergonomic /͵ɝgəˋnɑmɪk/ 人體工學的
+
+  
+
+shoulder blade /ˋʃoldɚ͵bled/ 肩胛骨
+
+  
+
+### Focus on Phrases
+
+put pressure on
+
+without breaking sweat
+
+  
+
+  
+
+### Info Cloud
+
+stand tall
+
+She stood tall even after being rejected.
+
+  
+
+hold your head high
+
+You did your best, so hold your head high.
+
+### Fun Fact
+
+The word pose (the way someone stands) is connected to the word posture. Other connected words are position, deposit, and transpose (change from one place to another).
+
+  
+
+Posture can also be a verb: to posture! It means to put on a fake attitude. Here is an example: The student was scared on his first day at school, but he postured as a tough guy.
+
+  
+
+## Usage Tip
+
+The + comparative + S + V .... the + comparative + S + V
+
+The more critically you read an article, the more questions you will raise.
+
+But the more you ignore your posture, the worse it will get.
+
+  
+
+Imperative sentence + and + result clause
+
+Listen to the instructions carefully, or you could put yourself in danger.
+
+Also, do a few daily back exercises and you will stand taller.
+
+## Talk About It
+
+Do you worry about your posture?
+
+- Yes, I do because ...
+
+- No, not very much because ...
+
+  
+
+What do you do to improve your posture?
+
+- I ... to improve my posture.
+
+- I don't ... to improve my posture.
