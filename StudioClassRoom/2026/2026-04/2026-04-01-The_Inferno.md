@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# The Inferno 2026-04-01
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

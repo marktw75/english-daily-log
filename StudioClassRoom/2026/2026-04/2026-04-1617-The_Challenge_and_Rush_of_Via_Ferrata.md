@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# The Challenge and Rush of Via Ferrata 2026-04-16~17
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

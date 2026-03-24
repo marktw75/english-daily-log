@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# Cooking Skills 101 2026-04-08
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# Autumn Symbols 2026-04-02~03
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

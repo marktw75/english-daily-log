@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# The Note in the Bottle 2026-04-09~10
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

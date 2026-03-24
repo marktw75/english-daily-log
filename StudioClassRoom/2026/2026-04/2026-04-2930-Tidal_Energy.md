@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# Tidal Energy 2026-04-29~30
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

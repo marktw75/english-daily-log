@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# Bridging the Gap 2026-04-23~24
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review

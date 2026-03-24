@@ -1,9 +1,7 @@
-# Title 2026-0x-xx-
-
+# The Gig Economy 2026-04-28
 
 
 ## Word Bank
-
 
 
 ### Word Bank Review
