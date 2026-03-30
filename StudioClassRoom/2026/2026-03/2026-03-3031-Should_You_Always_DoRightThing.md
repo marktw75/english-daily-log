@@ -29,4 +29,9 @@ How important is personal happiness
 
 ## Talk About It
 
-
+How important is personal happiness to you?
+ - Personal happiness is ...
+Do you always put others before yourself? Why or why not?
+- Not always because ...
+- Sometimes, because
+ 
