@@ -29,3 +29,24 @@ If you're searching for a healthy snack this summer, look no further than a piec
 
 - A delicious piece of watermelon is the perfect summer treat.
 - Watermelon provides plenty of health benefits.
+
+
+## Word Bank
+
+
+## Word Bank Boost
+
+
+## More Information
+
+
+## Focus on Phrases
+
+
+## Usage Tip
+### Tip 1
+
+### Tip 2
+
+
+## Talk About It
