@@ -6,23 +6,15 @@ Who messed with the cupcakes?
 
 By the time Ivy got to her bake-sale table, the damage had been done.
 
-  
 
 A group of students stood around it, whispering and making faces. One girl was wiping her tongue with a napkin. Another was making accusations about the cupcake display she was pointing at.
 
-  
-
 Ivy pushed through the crowd and froze. The lemon cupcakes - perfectly decorated and sunny yellow - smelled wrong.
 
-  
 
 She leaned in, took a tentative sniff and recoiled. Garlic. She read the handwritten label: "Lemon Garlic Buttercream Cupcakes."
 
-  
-
 Dean appeared beside her, eyeing the tray with a raised eyebrow. "Experimental," he said. "Bold."
-
-  
 
 "Ridiculous," Ivy replied. "That's not the label I wrote."
 

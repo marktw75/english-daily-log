@@ -2,17 +2,12 @@
 
 Where polar bears wander under dancing skies
 
-  
-
 Polar Bear Jail
 
 Chruchill has a polar bear Jail! Polar bears live on the ice to hunt seals. When the ice melts, some of them wander into town and are put in jail until the bay freezes. Then they are released back on the ice far from town.
 
-  
 
 Join YouTuber and travel writer Ashley Castle Pittman on her polar-bear expedition.
-
-  
 
   
 
