@@ -32,12 +32,31 @@ If you try your best, it's easy to feel frustrated when others ignore your effor
 
 tackle (v.) 處理；應付
 She decided to tackle her stress problem by changing the way she reacted to difficult situations.
+Olivia decided to tackle her fear of public speaking by joining a debate club.
+The football player's tackle stopped his opponent just inches from the goal line.
+
+tackler
+The young tackler impressed everyone with his calm approach and perfect technique.
 
 vague (adj.) 模糊的；籠統的
 Marvin had only a vague understanding of what the teacher was saying.
+The professor's vague explanation made Jonas even more confused about the assignment.
+
+vaguely
+Eli nodded vaguely, pretending to understand what the others were laughing about.
+
+vagueness
+Yuki dislikes the vagueness of the online instructions and prefers clear, step-by-step guides.
 
 approval (n.) 贊同；認可
 Carla worked hard because she wanted her mother's approval.
+When Fatima presented her art, the teacher's smile felt like quiet approval.
+
+approve
+Mateo's parents didn't fully approve of his decision, but they supported him anyway.
+
+disapprove
+Though Helena's parents quietly disapproved of her new tattoo, they couldn't help but admire her confidence.
 
 philosophy (n.) 哲學；哲理
 One simple philosophy encourages us to accept what we cannot control and keep trying in life.
@@ -72,6 +91,23 @@ alignment (n.) 調整一致
 suffer from 遭受……之苦
 
 instead of 而不是；代替
+
+
+## Deep Dive
+suffering
+
+suffer from
+She suffers from allergies.
+He suffers from homesickness when he travels.
+
+suffer through
+I suffered through a three-hour meeting that could've been an email.
+
+suffer in silence
+She suffered in silence rather than ask for help.
+
+suffer a loss
+The team suffered a major loss.
 
 ## Usage Tip
 
