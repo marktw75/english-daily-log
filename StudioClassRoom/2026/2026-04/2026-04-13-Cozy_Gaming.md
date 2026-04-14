@@ -24,6 +24,11 @@ Whenever you want to release some stress, try out a cozy game. It may be just th
 
 pace (n.) 步率；步調
 A man walked at a slow pace through the park.
+Clara kept the same pace as her friend, matching her steps as they walked through the park.
+Liam paced outside the hospital, his hands shaking as he checked the clock again.
+
+pace oneself
+Ava learned to pace herself at work instead of trying to finish everything at once.
 
 relaxation (n.) 放鬆；休息
 A warm bath is great for relaxation after a long day.

@@ -54,6 +54,11 @@ Mae's eyes filled with tears as she took the envelope back and tucked it into he
 
 rally (n.) 集會
 Josh attended a political rally for his favorite candidate.
+Thousands joined the peace rally, carrying signs filled with messages of hope and unity.
+Despite exhaustion, the runners rallied their strength for the final stretch.
+
+rally the troops
+When morale was low, the team leader rallied the troops with encouragement and snacks.
 
 tuck (v.) 悄悄藏入；把……塞入
 Ella tucked the name card into her purse.
