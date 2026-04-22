@@ -42,12 +42,36 @@ Lily: Maybe it's best to have a few close friends and a wider circle for fun and
 
 well-being (n.) 安康；安適
 The well-being of their children is of great concern to parents.
+Felix noticed that spending time in nature always boosted his sense of well-being.
+
+well-rounded
+The magazine's goal is to offer well-rounded content that educates and entertains.
+
+a well-rounded student
+well-adjusted
+Psychologists describe a well-adjusted person as someone who handles stress with balance and humor.
 
 advantage (n.) 優勢；好處
 There are many advantages to learning a second language.
 
 additionally (adv.) 另外；此外；再也
 Bill speaks English well. Additionally, he is learning Japanese and French.
+The app is free to download and additionally offers premium lessons for subscribers.
+
+additional
+Sofia requested additional time to finish her project after losing her research notes.
+
+additives
+The bakery avoids artificial additives, keeping its recipes simple and wholesome.
+
+background
+Mina came from a musical background, which inspired her to become a composer.
+
+backdrop
+The mountains formed a breathtaking backdrop for Leila's outdoor wedding ceremony.
+
+backstory
+Every superhero has a unique backstory explaining how they discovered their powers.
 
 expand (v.) 擴大；擴充
 Doreen is expanding her garden so she can grow more vegetables.
@@ -91,6 +115,20 @@ be close to (one) 與……親近
 
 hang out with (one) 與……出去玩
 
+
+## Deep Dive
+
+on the other hand
+The job pays well. On the other hand, the hours are long.
+
+however
+I wanted to go; however, the weather was terrible.
+
+then again
+I could go running. Then again... my couch looks comfortable.
+
+but
+I like the idea, but it's risky.
 ## Usage Tip
 
 ### Tip 1
