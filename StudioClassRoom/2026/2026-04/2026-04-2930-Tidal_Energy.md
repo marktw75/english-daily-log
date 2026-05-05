@@ -34,12 +34,29 @@ The tidal current is strongest in that part of the beach.
 
 quest (n.) 探索；探求
 The researchers have made great progress in their quest to find a cure for the disease.
+The explorers set out on a quest to find the lost city beneath the desert.
+
+side quest
+This computer game is known for its creative side quests.
+
+in quest of
+Diego traveled through the mountains in quest of rare herbs used in ancient medicine.
 
 gravity (n.) 重力；重力
 Babies tend to drop food on the floor to try to figure out how gravity works.
+Mia explained that gravity keeps the moon orbiting Earth instead of floating away.
+
+gravitate
+Dylan seemed to gravitate toward creative work, even when his job was technical.
+
+gravitational
+High and low ocean tides are a result of the Moon's gravitational pull.
 
 generator (n.) 發電機
 When the power line went down, we used a generator to power our house.
+
+typically
+Jake typically forgets where he put his keys, then laughs at himself every time.
 
 renewable (adj.) 可再生的；可更新的
 The more we use renewable energy sources, the better.
@@ -77,6 +94,21 @@ ripple effect 漣漪效應
 
 due to 由於；因為
 
+
+## Deep Dive
+take advantage of
+You should take advantage of the good weather and go outside.
+He took advantage of her kindness.
+Don't let people take advantage of you.
+
+make the most of
+Make the most of your free time.
+
+seize the opportunity
+She seized the opportunity to apply for the internship.
+
+exploit
+The company exploited its workers.
 ## Usage Tip
 
 ### Tip 1
