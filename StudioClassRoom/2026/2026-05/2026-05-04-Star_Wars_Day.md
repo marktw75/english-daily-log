@@ -31,12 +31,34 @@ Monica spun the globe and promised to visit the first country her finger landed 
 
 twist (n.) 變化；轉折
 The story had a twist at the end that no one expected.
+The story ended with a surprising twist that completely changed how readers understood the characters.
+
+twist someone's arm
+Amanda didn't want to go out, but her friends finally twisted her arm and convinced her to join them.
+
+twisted
+The tree's twisted branches created eerie shadows that stretched across the quiet forest floor.
 
 congratulate (v.) 祝賀；恭喜
 Sam congratulated his friend on passing the driving test.
+Parents gathered after the ceremony to congratulate the students who demonstrated exceptional leadership throughout the year.
+
+grati- 字根
+gratifying
+Finishing the long-term project was gratifying because it required commitment, patience and consistent effort.
+
+gratitude
+Eric expressed deep gratitude to everyone who supported him during the most stressful months of his life.
 
 recognize (v.) 正式承認；認出
 At first, I couldn't recognize my old neighborhood because of all the changes.
+I didn't immediately recognize my favorite singer because she had changed her hairstyle and glassed.
+
+recognition
+Even a small moment of recognition can encourage someone to believe their efforts are valued.
+
+incognito
+The man walked through the market incognito, wearing sunglasses and a hat so nobody would recognize him.
 
 marathon (n.) 馬拉松
 Watching all three movies in one night felt like a movie marathon.
@@ -63,6 +85,18 @@ prime minister (n.) 首相；總理
 ## Focus on Phrases
 
 to do with 與……有關
+
+## Deep Dive
+
+mark the date
+Sofia marked the date of her driving test and practiced every afternoon.
+Everyone in class marked the date for the big field trip to the science museum.
+
+save the date
+My cousin just got engaged and sent a card that said "Save the date: August 20th!"
+
+out of date
+Jake checked the milk and groaned, "Ugh, this is out of date!"
 
 ## Usage Tip
 
