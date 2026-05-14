@@ -23,15 +23,36 @@ Andrew threw the winning pitch for his team in the big game.
 
 strike zone (n.) 好球帶
 This baseball player always throws his pitches into the strike zone.
+The pitcher aimed carefully for the strike zone, hoping Liam wouldn't hit the fastball coming toward him.
+
+strike out
+Mia tried her best, but she still struck out when the pitcher threw three blazing fastballs.
+
+in the zone
+Noah was completely in the zone, solving math problems faster than anyone else in the class.
 
 initial (adj.) 最初的；開始的
 Their initial response to the news was positive.
+During the initial stage of the project, Steve focused on gathering information and organizing his research.
+
+initials
+Vicky wrote her initials at the bottom of the form to confirm she understood the agreement.
+
+initiative 倡議，新措施
+The school launched a new initiative designed to help students develop stronger reading and writing habits.
 
 confirm (v.) 確認
 Can you please confirm that the event starts at 7 p.m.?
 
 reduction (n.) 減少；降低
 The store's reduction in prices brought in more customers.
+The city saw a reduction in traffic after new public transportation routes were added last month.
+
+reductive
+This issue is far more complex than your reductive argument portrays.
+
+deduct
+The cashier needed to deduct the discount manually because the system didn't apply it automatically.
 
 margin (n.) 餘裕；幅度
 The results were close but still within the margin of error.
@@ -60,6 +81,17 @@ make the call 判決；做決定
 
 come into play 發揮作用；起作用
 
+## Deep Dive
+
+on the way
+The bus is on the way, so grab your backpack and wait at the stop.
+Good news: Rain is on the way to water the dry garden.
+
+under way
+The party preparations are under way, with balloons everywhere.
+
+by the way
+I love your new shoes. By the way, where did you get them?
 ## Usage Tip
 
 ### Tip 1
