@@ -1,4 +1,4 @@
-# Paradise in the Indian Ocean
+--# Paradise in the Indian Ocean
 
 The Seychelles offer a natural experience like no other
 
