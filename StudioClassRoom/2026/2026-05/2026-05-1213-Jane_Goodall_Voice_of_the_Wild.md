@@ -24,13 +24,39 @@ In the 1980s, Goodall became aware of a global decrease in animal habitats, incl
 
 Distinguished scientist and conservationist Jane Goodall passed away on October 1, 2025. Yet her life continues to inspire millions of people around the world to protect the planet and its precious wonders.
 
+### Roots and Shoots
+In 1991, Goodall established Roots and Shoots, a youth conservation program with hands-on programs that bring positive changes fr animals, the environment and local communities. Today, there are programs in 60 countries.
+
 ## Word Bank
 
 pioneer (n.) 先驅；先鋒
 Neil Armstrong, the first person to walk on the moon, was a space pioneer.
+Many historians view Thomas Edison as a technology pioneer because several of his inventions influenced today's communication tools.
+
+trailblazer
+Elena admired her grandmother, a trailblazer who pursued higher education when very few women were encouraged to do so.
+
+lay the groundwork for (something)
+He is credited with laying the groundwork for the medical system in this country.
+
+standard
+The school's academic standard improved after Mr. Patel introduced new science and math programs.
+
+gold standard
+Maria's research became the gold standard for future studies because of its accuracy and clarity.
+
+standardize
+The organization worked to standardize its training materials so every employee received the same information.
 
 obstacle (n.) 阻礙；障礙
 Bryce hoped to advance in the company, but he faced many obstacles, including health challenges.
+Hannah faced a major obstacle when her computer crashed the night before her presentation was due.
+
+obstruction
+Kyle reported the obstruction in the hallway so maintenance could remove it before students arrived at school.
+
+barrier
+A lack of reliable transportation became a major barrier for Manny, making it difficult for him to go to work.
 
 vast (adj.) 巨大的；廣大的
 Police found a vast amount of money buried under the restaurant.
@@ -43,12 +69,32 @@ After her children went to bed, Pauline resumed reading her new book.
 
 blade (n.) 葉片；刀片
 It's a pretty house, but there's not a blade of grass on the property.
+As Lily walked through the field, she noticed each blade of grass shimmering under the morning sunlight.
+Phil opened the package using a razor blade, careful not to slice the contents inside.
+
+cutting-edge
+The company invested in cutting-edge technology to improve efficiency and stay ahead of competitors.
 
 advocate (n.) 提倡者
 The politician is a well-known advocate for tax cuts.
+During the meeting, Michael acted as an advocate for students who felt too nervous to express their concerns themselves.
+
+advocacy
+The organization was praised for its many years of dedicated advocacy that led to important policy changes.
+
+speak up for
+When David noticed unfair treatment, he didn't hesitate to speak up for the people affected.
 
 distinguished (adj.) 傑出的
 The highly respected writer had a long and distinguished career.
+The university invited several distinguished scholars to speak at the education conference.
+
+distin-
+distinctive
+Ethan developed a distinctive writing style that blended humor with thoughtful insight in a way readers loved.
+
+distinct
+The experiment showed three distinct patterns, each leading the scientists toward a different conclusion.
 
 ## Word Bank Review
 
@@ -80,9 +126,38 @@ run from 逃離；躲避
 
 live in 生活在；居住在
 
-## Usage Tip
 
+## Deep Dive
+in hand
+With a map in hand, Riley explored the twisty streets of the old city.
+Keep your ticket in hand when you board the train to show the conductor.
+
+on the other hand
+I love sunny days, but on the other hand, rain makes everything green and fresh.
+
+lend a hand
+When the box was too heavy, Zoe asked her brother to lend a hand.
+
+run from
+Once he caught the ball, Billy ran from the defenders to avoid falling down.
+After a series of bad scores, the student ran from his problems by quitting school.
+
+run away from
+The lost puppy ran away from the noisy traffic and hid under a bush.
+
+flee from
+Villagers fled from the erupting volcano as ash filled the sky.
+## Usage Tip
 ### Tip 1
+S + request that + S (+ should) + VR ...
+request
+suggest
+recommend
+insist
+demand
+The manager requested that all employees be on time for the morning meeting.
+
+### Tip 2
 If it had not been for + N/V-ing, S + would/could/might have + p.p.
 
 用來表達「要不是……，事情本來就會有不同結果」，表示與過去事實相反的假設語氣。也常用 `Had it not been for ...` 來省略 `if`，語氣更正式。若要表達「與現在事實相反」時，則可改用 `If it were not for ...`。例如：If it were not for your help, I couldn't finish the project in time. 要不是你的幫忙，我就無法及時完成這個專案。

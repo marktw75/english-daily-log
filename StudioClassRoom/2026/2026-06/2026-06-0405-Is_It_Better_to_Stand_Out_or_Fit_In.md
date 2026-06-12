@@ -48,6 +48,13 @@ Noah: Agreed. I think that's the balance everyone's trying to determine.
 
 frame (v.) 表達；措辭謹慎地表達
 Abigail didn't know how to frame the question so her friends wouldn't get angry.
+The article framed the debate as a safety issue rather than a political argument.
+
+reframe
+After receiving the feedback, Eva tried to thoughtfully reframe the problem as an opportunity for growth.
+
+frame somebody (for something)
+The movie showed how police framed an innocent man for a crime he did not commit.
 
 negotiate (v.) 協調；解決
 Isaiah negotiated his bedtime with his parents when he turned 11.
@@ -89,6 +96,13 @@ uncomfortable (adj.) 不舒服的
 ## Focus on Phrases
 
 at the same time 同時
+Phil listened to music and studied for his final exam at the same time.
+
+simultaneously
+Two screens displayed messages simultaneously, confusing everyone watching the presentation unfold in the room.
+
+concurrently
+The company ran training sessions concurrently while successfully launching a new product worldwide.
 
 align with 與……一致
 

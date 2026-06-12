@@ -59,6 +59,13 @@ Jamie walked behind Ben straightening all of the pictures that were crooked.
 
 janitor (n.) 工友；管理員
 When Andrew was in college, he worked nights as a janitor in an office building.
+After school hours, the janitor, Carlos, cleaned classrooms quietly while listening to podcasts.
+
+janitorial
+Melissa's janitorial duties included handling repairs, creating cleaning schedules, and managing supply orders.
+
+custodian
+Before sunrise, the custodian unlocked the gates and ensure the hallways were safe for early visitors.
 
 trophy (n.) 獎盃
 Hunter was very proud of the trophy he won.
